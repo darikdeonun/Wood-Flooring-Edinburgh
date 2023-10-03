@@ -1,1 +1,2 @@
-# Wood-Flooring-Edinburgh
+# Wood Flooring Edinburgh
+The services of Wooden Flooring Sarina Flooring believes to satisfy customers flooring needs with the best quality products at the best prices. Whatever types of flooring you need; we are available to provide you better solutions. Oak is by far the most popular type of [wood flooring Edinburgh](https://www.hoffparquet.co.uk/engineered-wood-flooring-edinburgh.html) because it provides a good balance of durability, color range and reasonable costs. It comes in both red and white oak variations and can be used in high-traffic areas as the wood grain hides scratches well.
